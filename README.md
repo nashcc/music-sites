@@ -7,5 +7,5 @@ Maybe some piano??? http://touchpianist.com/
 
 MIDI the hell out of it: http://onlinesequencer.net/15506
 
-THEY"RE ALIVE, and very tonal: http://seaquence.org/
+THEY'RE ALIVE, and very tonal: http://seaquence.org/
 
