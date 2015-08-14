@@ -9,3 +9,7 @@ MIDI the hell out of it: http://onlinesequencer.net/15506
 
 THEY'RE ALIVE, and very tonal: http://seaquence.org/
 
+This site was awsome when it used to work... http://typedrummer.com/
+
+
+
